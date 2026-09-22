@@ -1,6 +1,6 @@
 **A passionate Software Engineer || Ai/Ml Engineer || Full Stack Engineer**
 
-Email Me 👉 ✉️ **abdullahkips75@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **abdullahkips75@gmail.com** For Collaboration/Project or Anything Else.
 
 - 🔭 **I’m currently working on:** Saas Project about Logistics
 - 🌱 **I’m currently learning:** AI/Ml 
